@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hunhun19
+- 👋 Hi, I’m @Ruhun Sudina
 - 👀 I’m interested in economics and data analysis
 - 🌱 I’m currently learning economics
 - 💞️ I’m looking to collaborate on anything
